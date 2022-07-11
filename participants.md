@@ -4,3 +4,4 @@ Kaazima Ifrah
 Jeet Mandal
 Yash Vardhan Thakur
 Jyotisman Borah
+Devata Dinesh Vamsi
