@@ -2,4 +2,5 @@
 Chandhana S  
 Kaazima Ifrah
 Jeet Mandal
+Yash Vardhan Thakur
 Jyotisman Borah
