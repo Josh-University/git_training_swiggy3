@@ -15,4 +15,3 @@ Devata Dinesh Vamsi
 Ravi Kumar
 
 Surajjyoti Nath
-
