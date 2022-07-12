@@ -1,6 +1,6 @@
 # Add your details below
 
-Chandhana S
+S Chandhana
 
 Kaazima Ifrah
 
