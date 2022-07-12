@@ -4,7 +4,7 @@ Chandhana S
 
 Kaazima Ifrah
 
-Jeet
+Jeet Mandal
 
 Yash Vardhan Thakur
 
